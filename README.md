@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **https://t.me/BREAKEDALAW2k16**
 
-- 📄 Know about my experiences [https://t.me/soidisuma](https://t.me/BREAKEDALAW2k16)
+- 📄 Know about my experiences [https://t.me/soidisuma](https://t.me/soidisuma)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
